@@ -1,0 +1,1 @@
+# Folie-i-przekle-stwo-PRL-
